@@ -10,5 +10,6 @@ Gerson Roberth Mamani Mendoza
 
 Jhoyce Roxana Perez Torres 
 
-enlace del video con mayor calidad 
+enlace del video del laboratorio 5 
+
 https://drive.google.com/file/d/1e0MQmYbK5rcFyPy6wR69BL3SDKg2NeUM/view?usp=sharing 
