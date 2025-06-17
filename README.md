@@ -3,8 +3,11 @@
 Integrantes del equipo 10 
 
 Richard Chavez Cano
+
 Vanessa Villarroel Choque
+
 Gerson Roberth Mamani Mendoza
+
 Jhoyce Roxana Perez Torres 
 
 enlace del video con mayor calidad 
